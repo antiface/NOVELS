@@ -2,7 +2,7 @@
 
 - - - - - - -
 
-2026-06-08 23:24:51
+*2026-06-08 23:24:51*
 * Here, I will treat of the many novels that I have designed over the years, and also why most if not all have been abject failures;
 * Unbeknownst to me, there was a fatal flaw in the __*Novel-as-a-System*__;
 * Essentially, the novels I designed were far too grand in scale and scope; they would require me to write 1000 pages for each;
@@ -16,6 +16,10 @@
 * It literally takes a microsecond to come up with the design concept for a new novel, at least when you practice what I call the *novelistic phenomenology*; that is, it's really the *Novel-as-a-System*, a kind of simulation one runs in one's mind; the actual novel itself can take on a multitude of forms; the design concept is necessarily *pluraL*, as it can take many forms; I think, however, that I'm just going to try to write a page per day towards these *novel-concepts*, working on many different novels on any given day; I figure if I can write 10-20 pages per day, in 100 days, that's at least 1000 pages, if not 2000; or another way to look at it, 10 pages per day is 3650 pages per year, and so in 10 years I could potentially have written 36,500 pages, which is a lot of pages, more than enough to finish the totality of my novels that are extant, *and then some*;
 * [...]
 
+- - - - - - -
+
+2026-06-09 06:14:49
+* It really does seem as though *History* has a mind of its own, its own *Geist*, and that she intervenes in people's lives; in my case, my career as an artist was characterized by a long sequence of *catastrophic failures*; it couldn't have been worse than it was; as a visual artist, I had my work stolen, defaced, lost, damaged by water, everything that *could* go wrong, *went* wrong, and horribly; the thing is, I'm still here to tell the story, *my story* which is limited, imperfect, yet unique; I alone am the *First Witness* of my life, I alone can *testify* to what *actually* happened; and yet even *I* can get it wrong sometimes, remembering events in the wrong order or omitting critical pieces of the history; that's why I always refer back to the *Records/Recordings*, as they cannot lie; the problem is, one displaces the problem of the integrity of the experience to a whole,and most often difficult, problem of *hermeneutic triangulation*;
 
 - - - - - - -
 
