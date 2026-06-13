@@ -29,7 +29,7 @@
 * I believe that *cultural innovation occurs when one is put through a crucible of hell-fire*; history was not kind to me, as I was saying before, but this is about to change; my time as an __*interdisciplinary artist-researcher*__ has finally come;
 * I've been hard at work doing sound design and recovering old musical compositions from when I was 17 or so; other *concept-albums* I am currently archiving come from the 2002-2004 period;
 * The other day I realized that __*Hyperreflexive Design is a "mode" of Reflexive Design*__, it's *Reflexive Design on overdrive*, when you put the *"thrusters"* on;
-* More on this layer; for now, I'm going to come back to the topic at hand, which is __*Design Concepts for Novelistic Phenomenologies; Or, The Novel-as-a-System*__;
+* More on this layer; for now, I'm going to come back to the topic at hand, which is __*Design Concepts for Novelistic Phenomenologies; Or, The Novel-as-a-System*__; I have made 5 new portraits in a new painting series with no name yet on the subject of __*modernism*__; it fits right into my *novelistic phenomenology*, as it is a kind of *modernist characterology*; SEE: *"Esquisses Caractériologiques"*;
 * [...]
 
 - - - - - - -
