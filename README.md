@@ -34,6 +34,13 @@
 
 - - - - - - -
 
+*2026-06-15 14:19:37*
+* One needs to have a __*complete characterology*__ if one wants to get ahead in life; the behaviors that you will see people engage in around you in your life will never make sense with a proper *characterology*; each *character* comes with its own *aesthetic/design problem*; you need to work out that problem in your head if you ever want to truly understand someone; __*we ARE "naked problems, white signs on a blackboard"*__, as André Salmon said of Pablo Picasso's *Les Demoiselles d'Avignon* painting, which is probably, or so they say, the work of art that has been most written about *after the Mona Lisa*;
+* I'm not standing here before you telling you that *"Everything Is A Design-Problem And Everything Has A Design-Concept*, that's just not true; a recipe for apple pie is NOT an *"elegant solution to an aesthetic problem"*, you've got it wrong, *it's just a $%&$ recipe*; you have to first learn how to navigate *these kinds of waters*;
+* Just a quick note for those who care or are bothered by this: *Why all the crazy textual formatting all the time?* It's __to help people read__; people, I am told, have a hard time *keeping their eyes on the page*, so the author today in the *Late Modernist Period* needs to give them a *helping hand*; okay, *too much is __too__ much*; More on this later;
+
+- - - - - - -
+
 ## [BACK TO INDEX OF REPOSITORIES](https://github.com/antiface/Index)
 
 - - - - - - -
