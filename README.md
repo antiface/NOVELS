@@ -40,7 +40,8 @@
 - - - - - - -
 
 *2026-07-15 18:54*
-* The abstract characterology has to do with defining each character' *problem space* which is connected with a *solution space* in that the *P-Space* generates the __*S-Space*__;
+* The *abstract characterology* has to do with defining each character' *problem space* which is connected with a *solution space* in that the __*P-Space*__ generates the __*S-Space*__;
+* A novel is just one of many possible *"elegant solutions to aesthetic problems", to the aesthetic problem at the heart of the novel; so the story is an elegant solution to an aesthetic problem and each character also has another type of aesthetic problem linked to them; even the settings pose yet another kind of problem; everything is problematic, __*the novel is a problematique*__;
 * [...]
 - - - - - - -
 
