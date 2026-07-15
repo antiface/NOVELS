@@ -39,6 +39,11 @@
 
 - - - - - - -
 
+*2026-07-15 18:54*
+* The abstract characterology has to do with defining each character' *problem space* which is connected with a *solution space* in that the *P-Space* generates the __*S-Space*__;
+* [...]
+- - - - - - -
+
 ## [BACK TO INDEX OF REPOSITORIES](https://github.com/antiface/Index)
 
 - - - - - - -
