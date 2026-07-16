@@ -69,7 +69,7 @@
 * Everything is based on my own meticulous and systematic, compulsive observations and documentation, is founded on artistic visions that I've had, which I have termed __*"historiophanies"*__ or __*"historiophanic experiences")*__; these are becoming more and more fundamental to my daily practice of elaborating all of these things;
 * I hope to be able to get around to talking more about this trilogy of novels I started exactly 25 years ago, with *The History-Project*, a magnum opus I have called __*"THE REVOLT OF FICTION"*__;
 * I need to try to write more about *The Atmospheric Qualities in Artistic Prose*, drawing, where possible, from historical source materials;
-* *"The Text/Texture of History is What Holds Everything Together"*; (SEE: __*"Being-in-Time" and "The Birth of The New Polyphiny"*__);
+* *"The Text/Texture of History is What Holds Everything Together"*; (SEE: __*"Being-in-Time" and "The Birth of The New Polyphony"*__);
 * [...]
 
 - - - - - - -
