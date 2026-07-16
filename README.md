@@ -49,7 +49,18 @@
 * In *The Chronotopium*, there are many facets to the story; again, like the preceding novels, it is highly complex and dynamic, almost like a kind of organism; whenever I *ideate* on its subject, I keep coming up with new ideas, scratching out old ideas; I work in *starts & stops*, continuously; as I said, I start a new document, a new novel, then I start a new one; there is still this *tragic flaw in the system*;
 * *Scene-building* and *World-Building* are super important; I always create a unique *fictional cosmology* for my novels, the universe that the characters live in; these fictional spaces are complex and multidimensional; there are all sorts of *meta-realms* where strange things occur, and all the various *abstract territories* are massively interconnected; I often speak of __*Abstract Cartographies*__ with regard to my novels, my paintings also;
 * In essence, these are *interior spaces*, not like the interior of my art studio, but *my* interior, with these spaces actually existing in my inward plane, or plane of inwardness; I experience it as having them *projected inwardly*, and in that regard, phenomenologically at least, they seem exceptionally real, even though they are only *virtual*; that's why I speak of *simulations* too, the novel in terms of its simulations, and it's also why one novel can take on an indefinite number of forms; each design concept is a unique solution from the *solution space* to a problem in the *problem space*; the function of the novel is to find elegant solutions to its design problems or *aesthetic problems*;
-* As I said, the characters also have their own unique problems, one or more per character; usually the character actually also has, and is, a __*problematique*__, a *(meta-)system of problems*; the characters are what I like to call *naked problems*, they are walking, talking problems;
+* As I said, the characters also have their own unique problems, one or more per character; usually the character actually also has, and is, a __*problematique*__, a *(meta-)system of problems*; the characters are what I like to call *naked problems*, they are walking, talking problems.
+
+- - - - - - -
+
+*2026-07-16 13:29*
+
+* The *"character-as-problem"* is also the *"character-as-hypothesis"*;
+* The character *"makes a testable and reproducible prediction about reality"*, about its own reality as fictional object and device in the novel;
+* The __*Novel-as-a-System*__ is first and foremost a *system*; it has parts, moving parts, components, that are *"nodes"* in a complex network, connected by *"interactions"* between these parts, or the network's *"edges"*;
+* The character *"interacts"* with the fictional universe, with its objects and places and with other characters, and interacts as well with the Author's mind and the *"mental furniture"* that inhabit his mental space (of ideas);
+* The metafictional character is self-aware, is aware of his existence as object, or subject, of fiction; he has sensations, feelings, and thoughts, and is always moving; in this way, the character is a *"moving target"* for the Author, is never quite where he's supposed to be, is always getting stuck in the margins, in the periphery;
+* I think also oerhaps, the character answers a need, in fact, has its own needs, which, though fictional, always correspond to real human needs, desires, wishes;
 * [...]
 
 - - - - - - -
