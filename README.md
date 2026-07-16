@@ -55,6 +55,7 @@
 
 *2026-07-16 13:29*
 
+* *"A hypothesis (pl.: hypotheses) is a proposed explanation for a phenomenon. A scientific hypothesis must be based on observations and make a testable and reproducible prediction about reality, in a process beginning with an educated guess. If a hypothesis is repeatedly independently demonstrated by experiment to be true, it becomes a scientific theory."* (Ref. Hypothesis - Wikipedia);
 * The *"character-as-problem"* is also the *"character-as-hypothesis"*;
 * The character *"makes a testable and reproducible prediction about reality"*, about its own reality as fictional object and device in the novel;
 * The __*Novel-as-a-System*__ is first and foremost a *system*; it has parts, moving parts, components, that are *"nodes"* in a complex network, connected by *"interactions"* between these parts, or the network's *"edges"*;
