@@ -39,7 +39,7 @@
 
 - - - - - - -
 
-*2026-07-15 18:54*
+*2026-07-15 18:54:23*
 * The *abstract characterology* has to do with defining each character's *problem space* which is connected with a *solution space* in that the __*P-Space*__ generates the __*S-Space*__;
 * A novel is just one of many possible *"elegant solutions to aesthetic problems"*, to the aesthetic problem at the heart of the novel; so the story is an elegant solution to an aesthetic problem and each character also has another type of aesthetic problem linked to them; even the settings pose yet another kind of problem; everything is problematic, __*the novel is a problematique*__;
 * The novel or novelistic phenomenology is a *History-Machine*;
@@ -53,8 +53,7 @@
 
 - - - - - - -
 
-*2026-07-16 13:29*
-
+*2026-07-16 13:29:17*
 * *"A hypothesis (pl.: hypotheses) is a proposed explanation for a phenomenon. A scientific hypothesis must be based on observations and make a testable and reproducible prediction about reality, in a process beginning with an educated guess. If a hypothesis is repeatedly independently demonstrated by experiment to be true, it becomes a scientific theory."* (__Ref. Hypothesis - Wikipedia__);
 * The *"character-as-problem"* is also the *"character-as-hypothesis"*;
 * The character *"makes a testable and reproducible prediction about reality"*, about its own reality as fictional object and device in the novel;
