@@ -68,6 +68,7 @@
 * It is inspired by the concept of *experimental novel* theorized by Émile Zola, though I would argue is *"more realistic that the realist (realistic) novel"* as it doesn't try to recapitulate the history of a group and its society across several generations; no, it is serial, iterative, and evolutionary and only ever really takes place within a single day, *"sandwiched*" within the boundaries that delimit its ambient space, yes, it is *"ambient"* as well as *experimental*;
 * Everything is based on my own meticulous and systematic, compulsive observations and documentation, is founded on artistic visions that I've had, which I have termed __*"historiophanies"*__ or __*"historiophanic experiences")*__; these are becoming more and more fundamental to my daily practice of elaborating all of these things;
 * I hope to be able to get around to talking more about this trilogy of novels I started exactly 25 years ago, with *The History-Project*, a magnum opus I have called __*"THE REVOLT OF FICTION"*__;
+* I need to try to write more about *The Atmospheric Qualities in Artistic Prose*, drawing, where possible, from histofical source materials;
 * [...]
 
 - - - - - - -
