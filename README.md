@@ -49,8 +49,9 @@
 * In *The Chronotopium*, there are many facets to the story; again, like the preceding novels, it is highly complex and dynamic, almost like a kind of organism; whenever I *ideate* on its subject, I keep coming up with new ideas, scratching out old ideas; I work in *starts & stops*, continuously; as I said, I start a new document, a new novel, then I start a new one; there is still this *tragic flaw in the system*;
 * *Scene-building* and *World-Building* are super important; I always create a unique *fictional cosmology* for my novel, the universe that the characters live in; these fictional spaces are complex and multidimensional; there are all sorts of *meta-realms* where strange things occur, and all the various *abstract territories* are massively interconnected; I often speak of __*Abstract Cartographies*__;
 * In essence, these are *interior spaces*, not like the interior of my art studio, but *my* interior, with these spaces actually existing in my inward plane, or plane of inwardness; I experience it as having them *projected inwardly*, and in that regard, phenomenologically at least, they seem exceptionally real, even though they are only *virtual*; that's why I speak of *simulations* too, the novel in terms of its simulations, and it's also why one novel can take on an indefinite number of forms; each design concept is a unique solution from the *solution space* to a problem in the *problem space*; the function of the novel is to find elegant solutions to its design problems or *aesthetic problems*;
-* As I said, the characters also have their own unique problems, one or more per character; usually the character actually also has, and is, a __*problematique*__, a *(meta-)system of problems*;
+* As I said, the characters also have their own unique problems, one or more per character; usually the character actually also has, and is, a __*problematique*__, a *(meta-)system of problems*; the characters are what I like to call *naked problems*, they are walking, talking problems;
 * [...]
+
 - - - - - - -
 
 ## [BACK TO INDEX OF REPOSITORIES](https://github.com/antiface/Index)
